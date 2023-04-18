@@ -1,2 +1,2 @@
 # prueba2
-repositorio no en escritorio
+!!!! CARPERTA DE PRUEBA NO EN ESCRITORIO!!!!
